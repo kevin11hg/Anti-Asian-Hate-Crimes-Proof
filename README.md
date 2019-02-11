@@ -1,5 +1,5 @@
 # Anti-Asian-Hate-Crimes-Proof
-Evidence Data of Disproportionate Crimes Against Asians Underreported, Misreported, Downplayed by Controlled Mainstream Media and their Special Interest Groups
+Evidence Data of Disproportionate Crimes Against Asians Underreported, Misreported, Downplayed by Controlled Mainstream Media and their Special Interest Groups.  Sources like Nextshark are media startups not yet influenced as of currently..
 
 <table class="table table-bordered table-hover table-condensed">
 <thead><tr><th title="Field #1">Year</th>
@@ -105,36 +105,6 @@ Evidence Data of Disproportionate Crimes Against Asians Underreported, Misreport
 <td>American</td>
 <td>America</td>
 <td>https://nextshark.com/filipina-models/</td>
-</tr>
-<tr>
-<td align="right">2018</td>
-<td>Outrage as female tourist strips naked and &#39;rubs herself&#39; against a 12ft sacred rock shaped like a penis in Thailand</td>
-<td>Disrespectful</td>
-<td>NA</td>
-<td>NA</td>
-<td>NA</td>
-<td>NA</td>
-<td>NA</td>
-<td>Female</td>
-<td>White</td>
-<td>NA</td>
-<td>Thailand</td>
-<td>http://www.dailymail.co.uk/news/article-5494825/Naked-woman-spark-fury-Thai-island-rubbing-penis-stone.html</td>
-</tr>
-<tr>
-<td align="right">2018</td>
-<td>Netizens Surprised That Ukrainian Woman Married Chinese Man ‘For Free’</td>
-<td>Racism</td>
-<td>Inesa, He Pingwei</td>
-<td>2</td>
-<td>NA</td>
-<td>Mixed</td>
-<td>NA</td>
-<td>NA</td>
-<td>White</td>
-<td>Ukranian</td>
-<td>China</td>
-<td>https://nextshark.com/netizens-surprised-ukrainian-woman-married-chinese-man-free/</td>
 </tr>
 <tr>
 <td align="right">2018</td>
