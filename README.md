@@ -1,5 +1,5 @@
 # Anti-Asian-Hate-Crimes-Proof
-Evidence Data of Disproportionate Crimes Against Asians Underreported, Misreported, Downplayed by Controlled Mainstream Media and their Special Interest Groups.  Sources like Nextshark are media startups not yet influenced as of currently..
+Evidence Data of Disproportionate Crimes Against Asians Underreported, Misreported, Downplayed by Controlled Mainstream Media and their Special Interest Groups.  Sources like Nextshark are closer to media startups not yet influenced as of currently..
 
 <table class="table table-bordered table-hover table-condensed">
 <thead><tr><th title="Field #1">Year</th>
