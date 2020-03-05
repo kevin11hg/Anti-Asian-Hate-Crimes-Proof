@@ -6993,4 +6993,5 @@ Evidence Data of Disproportionate Crimes Against Asians Underreported, Misreport
 </tr>
 </tbody></table>
 
-![Coronavirus Reactive Igorance](www.reddit.com/r/aznidentity/comments/fdk6tw/ongoing_list_of_asian_crimes_due_to_corona_virus/)
+# ![Coronavirus Reactive Igorance](www.reddit.com/r/aznidentity/comments/fdk6tw/ongoing_list_of_asian_crimes_due_to_corona_virus/)
+# ![Asians Elders Victims of Punk Abuse](https://www.reddit.com/r/aznidentity/comments/fb8b6y/compilation_of_attacks_on_the_elderly)
