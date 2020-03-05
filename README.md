@@ -6992,3 +6992,5 @@ Evidence Data of Disproportionate Crimes Against Asians Underreported, Misreport
 <td>http://latimesblogs.latimes.com/thedailymirror/2007/06/soldier_kills_w.html</td>
 </tr>
 </tbody></table>
+
+![Coronavirus Reactive Igorance](www.reddit.com/r/aznidentity/comments/fdk6tw/ongoing_list_of_asian_crimes_due_to_corona_virus/)
