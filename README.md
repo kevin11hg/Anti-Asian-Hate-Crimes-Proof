@@ -1,6 +1,9 @@
 # Anti-Asian-Hate-Crimes-Proof
 Evidence Data of Disproportionate Crimes Against Asians Underreported, Misreported, Downplayed by Controlled Mainstream Media and their Special Interest Groups.  Sources like Nextshark are closer to small startups not yet influenced by big media as of currently..
 
+**2020 news flash update unhelpful racist responses to universal global health pandemic** https://en.wikipedia.org/wiki/Xenophobia_and_racism_related_to_the_2019%E2%80%9320_coronavirus_pandemic
+
+
 <table class="table table-bordered table-hover table-condensed">
 <thead><tr><th title="Field #1">Year</th>
 <th title="Field #2">Crime</th>
