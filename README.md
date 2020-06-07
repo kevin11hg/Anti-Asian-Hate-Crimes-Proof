@@ -3,6 +3,7 @@ Evidence Data of Disproportionate Crimes Against Asians Underreported, Misreport
 
 **2020 news flash update unhelpful racist responses to universal global health pandemic** https://en.wikipedia.org/wiki/Xenophobia_and_racism_related_to_the_2019%E2%80%9320_coronavirus_pandemic
 
+**2020 Small Business looting https://www.asian-dawn.com/2020/06/05/donation-list-for-asian-businesses-looted-destroyed/**
 
 <table class="table table-bordered table-hover table-condensed">
 <thead><tr><th title="Field #1">Year</th>
