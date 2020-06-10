@@ -3,8 +3,11 @@ Evidence Data of Disproportionate Crimes Against Asians Underreported, Misreport
 
 **2020 news flash update unhelpful racist responses to universal global health pandemic** https://en.wikipedia.org/wiki/Xenophobia_and_racism_related_to_the_2019%E2%80%9320_coronavirus_pandemic
 
-**2020 Small Business looting https://www.asian-dawn.com/2020/06/05/donation-list-for-asian-businesses-looted-destroyed/**
-www.gofundme.com/f/Rebuilding-Fordham-GoldCashIncKingsJewlery?fbclid=IwAR24PV2Tk2QjcDhxX8NIyT1LGmLlDnJ4T_6TxDIwvLPaZnMuntWF4_Noscg
+**2020 Small Family Business looting https://www.asian-dawn.com/2020/06/05/donation-list-for-asian-businesses-looted-destroyed/**
+
+# www.gofundme.com/f/Rebuilding-Fordham-GoldCashIncKingsJewlery?fbclid=IwAR24PV2Tk2QjcDhxX8NIyT1LGmLlDnJ4T_6TxDIwvLPaZnMuntWF4_Noscg
+
+# https://nextshark.com/rialto-korean-man-attacked-bus/
 
 <table class="table table-bordered table-hover table-condensed">
 <thead><tr><th title="Field #1">Year</th>
