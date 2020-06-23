@@ -7,6 +7,9 @@ Evidence Data of Disproportionate Crimes Against Asians Underreported, Misreport
 
 # www.gofundme.com/f/Rebuilding-Fordham-GoldCashIncKingsJewlery?fbclid=IwAR24PV2Tk2QjcDhxX8NIyT1LGmLlDnJ4T_6TxDIwvLPaZnMuntWF4_Noscg
 
+# Remember Aaron Vu Peter Wang Kelvin Chew
+https://asamnews.com/tag/aaron-vu/
+
 # https://nextshark.com/rialto-korean-man-attacked-bus/
 
 <table class="table table-bordered table-hover table-condensed">
