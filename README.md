@@ -3,7 +3,7 @@ Data of Disproportionate Crimes Against Asians Underreported, Misreported, Downp
 ## [](asianam.org)
 ##  EXCLUSIVE: Waitress who defended Asian family and stopped SF Silicon Valley techbro CEO's racist rant at Carmel Valley restaurant receives almost 6 figures <$1MM in Venmo tips and GoFundMe donations
 ## [Andrew Yang ](https://www.yangforny.com/) and NYPD Deputy Inspector Stewart Loo Form & Fund Asian Hate Crimes Unit https://www.youtube.com/watch?v=N-vFPsA9dlk&ab_channel=InsideEdition
-Predators Pervs Public Menaces Scums and Cowards Your Worst Nightmare: Batman + Bruce Lee + Richard Dragon + Public Prosecutor & NYPD Deputy Inspector Stewart Loo ![https://www.youtube.com/watch?v=N-vFPsA9dlk&ab_channel=InsideEdition](https://raw.githubusercontent.com/kevin11hg/Anti-Asian-Hate-Crimes-Proof/master/Andrew%20Yang%20Stewart%20Loo%20Batman%20Richard%20Dragon.png) ![](https://pbs.twimg.com/ext_tw_video_thumb/900193851918372864/pu/img/hXmLt7W_DQuBR6T6.jpg)
+
 # 2021 List of GoFundMes & Charities
 1. https://www.gofundme.com/f/bayview-victim-family-fund
 2. https://nextshark.com/asian-businesses-support-donation-looted/
@@ -7072,3 +7072,7 @@ Consult Christ first - Do not be so easily deceived by the mind of man's definit
 
 # ![Coronavirus Reactive Igorance](www.reddit.com/r/aznidentity/comments/fdk6tw/ongoing_list_of_asian_crimes_due_to_corona_virus/)
 # ![Asians Elders Victims of Punk Abuse](https://www.reddit.com/r/aznidentity/comments/fb8b6y/compilation_of_attacks_on_the_elderly)
+
+
+Predators Pervs Public Menaces Scums and Cowards Your Worst Nightmare: Batman + Bruce Lee + Richard Dragon + Public Prosecutor & NYPD Deputy Inspector Stewart Loo ![https://www.youtube.com/watch?v=N-vFPsA9dlk&ab_channel=InsideEdition](https://raw.githubusercontent.com/kevin11hg/Anti-Asian-Hate-Crimes-Proof/master/Andrew%20Yang%20Stewart%20Loo%20Batman%20Richard%20Dragon.png) ![](https://pbs.twimg.com/ext_tw_video_thumb/900193851918372864/pu/img/hXmLt7W_DQuBR6T6.jpg)
+
