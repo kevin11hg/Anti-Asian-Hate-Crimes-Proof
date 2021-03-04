@@ -5,6 +5,7 @@ Data of Disproportionate Crimes Against Asians Underreported, Misreported, Downp
 ## [Andrew Yang ](https://www.yangforny.com/) and NYPD Deputy Inspector Stewart Loo Form & Fund Asian Hate Crimes Unit https://www.youtube.com/watch?v=N-vFPsA9dlk&ab_channel=InsideEdition
 
 # 2021 List of GoFundMes & Charities
+##　https://www.gofundme.com/f/84yearold-killed-in-san-francisco
 1. https://www.gofundme.com/f/bayview-victim-family-fund
 2. https://nextshark.com/asian-businesses-support-donation-looted/
 3. https://www.gofundme.com/f/securityforoaklandchinatown
