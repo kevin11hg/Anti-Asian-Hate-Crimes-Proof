@@ -69,12 +69,13 @@ Consult Christ first - Do not be so easily deceived by the mind of man's definit
 
 **2020 Small Family Business looting https://www.asian-dawn.com/2020/06/05/donation-list-for-asian-businesses-looted-destroyed/**
 # https://www.gofundme.com/f/help-89-year-hate-crime-victim
-# www.gofundme.com/f/Rebuilding-Fordham-GoldCashIncKingsJewlery?fbclid=IwAR24PV2Tk2QjcDhxX8NIyT1LGmLlDnJ4T_6TxDIwvLPaZnMuntWF4_Noscg
+## www.gofundme.com/f/Rebuilding-Fordham-GoldCashIncKingsJewlery
 
 # Remember Aaron Vu Less Than 10 Years Old Young Man + Peter Wang 15-Year Old Civic Hero + Kelvin Chew 
-https://asamnews.com/tag/aaron-vu/
+# https://asamnews.com/tag/aaron-vu/
 
-# https://nextshark.com/rialto-korean-man-attacked-bus/
+# Pray Psalm 91 Song of Moses Protection in Public Spaces / Private Homes Surveiled Gated Communities
+## https://nextshark.com/rialto-korean-man-attacked-bus/
 
 <table class="table table-bordered table-hover table-condensed">
 <thead><tr><th title="Field #1">Year</th>
