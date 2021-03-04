@@ -1,6 +1,6 @@
 # Anti-Asian Racially Motivated Hate Crimes Proof
 Data of Disproportionate Crimes Against Asians Underreported, Misreported, Downplayed by Controlled Mainstream Media and their Special Interest Groups.  Sources like Nextshark are closer to small startups not yet influenced by big media as of currently.. Don't trust Fakebook their shill centralized censorship and other discredible misinformation media sources bribed journos and slanderags. Developing open source project into future evidence / citations for the purposes of historicity + hedge against  incel gaslighting and ignorant impotent racist revisionism.
-## asianam.org
+## [](asianam.org)
 ##  EXCLUSIVE: Waitress who defended Asian family and stopped SF Silicon Valley techbro CEO's racist rant at Carmel Valley restaurant receives almost 6 figures <$1MM in Venmo tips and GoFundMe donations
 ## [Andrew Yang ](https://www.yangforny.com/) and NYPD Deputy Inspector Stewart Loo Form & Fund Asian Hate Crimes Unit https://www.youtube.com/watch?v=N-vFPsA9dlk&ab_channel=InsideEdition
 Predators Pervs Public Menaces Scums and Cowards Worst Nightmare: Batman + Bruce Lee + Richard Dragon + Public Prosecutor & NYPD Deputy Inspector Stewart Loo ![](https://pbs.twimg.com/ext_tw_video_thumb/900193851918372864/pu/img/hXmLt7W_DQuBR6T6.jpg)
