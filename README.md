@@ -1,56 +1,64 @@
 # Anti-Asian Racially Motivated Hate Crimes Proof
-Data of Disproportionate Crimes Against Asians Underreported, Misreported, Downplayed by Controlled Mainstream Media and their Special Interest Groups.  Sources like Nextshark are closer to small startups not yet influenced by big media as of currently.. Don't trust Fakebook and other discredible misinformation sources. Developing into future evidence & purposes of historicity / hedge against racist revisionism.
-## http://asianam.org/
+Data of Disproportionate Crimes Against Asians Underreported, Misreported, Downplayed by Controlled Mainstream Media and their Special Interest Groups.  Sources like Nextshark are closer to small startups not yet influenced by big media as of currently.. Don't trust Fakebook and other discredible misinformation sources. Developing into future evidence & purposes of historicity / hedge against incel gaslighting and ignorant racist revisionism.
+## asianam.org
 ##  EXCLUSIVE: Waitress who defended Asian family and stopped SF tech CEO's racist rant at Carmel Valley restaurant receives almost 6 figures <$1MM in Venmo tips and GoFundMe donations
-## [Andrew Yang ](https://www.yangforny.com/) and NYPD Deputy Inspector Form & Fund Asian Hate Crimes Unit https://www.youtube.com/watch?v=N-vFPsA9dlk&ab_channel=InsideEdition
-
+## [Andrew Yang ](https://www.yangforny.com/) and NYPD Deputy Inspector Stewart Loo Form & Fund Asian Hate Crimes Unit https://www.youtube.com/watch?v=N-vFPsA9dlk&ab_channel=InsideEdition
+Predators and Cowards Worst Nightmare: Batman + Bruce Lee + Richard Dragon + Public Prosecutor & NYPD Deputy Inspector Stewart Loo ![](https://pbs.twimg.com/ext_tw_video_thumb/900193851918372864/pu/img/hXmLt7W_DQuBR6T6.jpg)
 # 2021 List of GoFundMes & Charities
-+ https://www.gofundme.com/f/bayview-victim-family-fund
-+ https://nextshark.com/asian-businesses-support-donation-looted/
-+ https://www.gofundme.com/f/securityforoaklandchinatown
-+ https://www.gofundme.com/f/familyowned-store-destroyed-save-noah039s-beauty
-+ https://www.theycantburnusall.org/pages/donate
-+ https://www.gofundme.com/f/jubilee-silver-rebuilding-fund
-+ https://www.gofundme.com/f/h93r4-long-beach-ten-riot-recovery-fund
+1. https://www.gofundme.com/f/bayview-victim-family-fund
+2. https://nextshark.com/asian-businesses-support-donation-looted/
+3. https://www.gofundme.com/f/securityforoaklandchinatown
+4. https://www.gofundme.com/f/familyowned-store-destroyed-save-noah039s-beauty
+5. https://www.theycantburnusall.org/pages/donate
+6. https://www.gofundme.com/f/jubilee-silver-rebuilding-fund
+7. https://www.gofundme.com/f/h93r4-long-beach-ten-riot-recovery-fund
 ## https://nymag.com/strategist/article/where-to-donate-to-help-asian-communities-2021.html
-+ https://www.gofundme.com/f/help-rebuild-k-beauty-supply-after-looting
-+ https://www.gofundme.com/f/gadget-garage-looting-relief
-+ https://www.gofundme.com/f/lets-get-james-hong-a-star-on-the-walk-of-fame
-+ https://charity.gofundme.com/o/en/campaign/replace-cherry-blossom-treet
-+ https://stopaapihate.org/actnow/
-+ https://give.cornerstone.cc/welcometochinatown
-+ https://www.sendchinatownlove.com/ways-to-donate.html
-+ https://au.gofundme.com/f/city-fashions-road-to-recovery
+1. https://www.gofundme.com/f/help-rebuild-k-beauty-supply-after-looting
+2. https://www.gofundme.com/f/gadget-garage-looting-relief
+3. https://www.gofundme.com/f/lets-get-james-hong-a-star-on-the-walk-of-fame
+4. https://charity.gofundme.com/o/en/campaign/replace-cherry-blossom-treet
+5. https://stopaapihate.org/actnow/
+6. https://give.cornerstone.cc/welcometochinatown
+7. https://www.sendchinatownlove.com/ways-to-donate.html
+8. https://au.gofundme.com/f/city-fashions-road-to-recovery
 ## Asian Dawn Realist + Latest News UNCENSORED https://www.asian-dawn.com/2020/06/05/donation-list-for-asian-businesses-looted-destroyed/
-+ https://www.gofundme.com/f/kevans-recovery
-+ https://www.gofundme.com/f/ef33p-chicago-beauty-supply-store-looted-amp-burned-down
-+ https://www.gofundme.com/f/thy039s-campaign-for-wat-lao-santitham
-+ https://www.gofundme.com/nguyen-medical-lawyer-and-rent
-+ https://www.gofundme.com/f/help-sung-and-kyung-chong-englewood-store-looted?utm_source=customer&utm_medium=copy_link&utm_campaign=m_pd%20share-sheet
-+ https://www.gofundme.com/f/help-wuhan-fight-through-coronavirus
-+ https://www.gofundme.com/f/family-business-looted-recovery-funds 
-+ https://www.gofundme.com/f/thy039s-campaign-for-wat-lao-santitham
-+ https://www.gofundme.com/f/help-sung-and-kyung-chong-englewood-store-looted
-+ https://www.gofundme.com/lauren-amp-charles-lew
-+ https://www.gofundme.com/the-hoang-family Hoang Family Traffic Accident
-+ https://gf.me/u/s9449b Help Cambodian Community
-+ https://www.gofundme.com/zazgs-csa039s-culture-show
-## Acts of God Wildfire Disaster Community Recovery Funds
-+ https://www.gofundme.com/raise-funds/CAfirerelief
-+ https://www.gofundme.com/family-lost-home-in-wildfire
-+ https://www.gofundme.com/takahashi-family-fund
-+ https://www.gofundme.com/dicolen-family-support
-+ https://www.gofundme.com/kusano
-+ https://www.gofundme.com/singh-family
-+ https://www.gofundme.com/giving-back-to-gm-rene-latosa
-+ https://www.gofundme.com/vanessa-kareem-elhadidi-fire-fund
-+ https://www.gofundme.com/a-scholarship-fund-for-asianamericans
-+ https://www.gofundme.com/f/how-to-report-a-hate-crime-booklet-printing-fund
-+ https://www.gofundme.com/f/support-dragon-printing-san-francisco
-+ https://www.gofundme.com/f/justice-for-christian-hall
-+ https://www.gofundme.com/f/help-89-year-hate-crime-victim
+1. https://www.gofundme.com/f/kevans-recovery
+2. https://www.gofundme.com/f/ef33p-chicago-beauty-supply-store-looted-amp-burned-down
+3. https://www.gofundme.com/f/thy039s-campaign-for-wat-lao-santitham
+4. https://www.gofundme.com/nguyen-medical-lawyer-and-rent
+5. https://www.gofundme.com/f/help-sung-and-kyung-chong-englewood-store-looted
+6. https://www.gofundme.com/f/help-wuhan-fight-through-coronavirus
+7. https://www.gofundme.com/f/family-business-looted-recovery-funds 
+8. https://www.gofundme.com/f/thy039s-campaign-for-wat-lao-santitham
+9. https://www.gofundme.com/f/help-sung-and-kyung-chong-englewood-store-looted
+10. https://www.gofundme.com/lauren-amp-charles-lew
+11. https://www.gofundme.com/the-hoang-family Hoang Family Traffic Accident
+12. https://gf.me/u/s9449b Help Cambodian Community
 
-Consult Christ first - Do not be so easily deceived by man's definition or interpretation of justice with fancy sounding names "restorative justice" movements "sanctuary cities" meaning displacing penitentiary facilities into public civic commercial centers and their limpwristed liberal nominalism and labelist gaslighting ilk and ignorant far right unlicensed paranationalists, instead aim for Vice President of America Kamala Harris's style of judicial execution & tough-on-crime incarceration for serious felons with disproportionately extendend sentences forever as surgery subjects, so the 80% good people in public can help them learn and educate why evil is a bad thing and help them earn less than $2 per day minimum wage assembling wheelchairs for good people suffering from disability and dignity
+## Acts of God Wildfire Disaster Community Recovery Funds
+1. https://www.gofundme.com/raise-funds/CAfirerelief
+2. https://www.gofundme.com/family-lost-home-in-wildfire
+3. https://www.gofundme.com/takahashi-family-fund
+4. https://www.gofundme.com/dicolen-family-support
+5. https://www.gofundme.com/kusano
+6. https://www.gofundme.com/singh-family
+7. https://www.gofundme.com/giving-back-to-gm-rene-latosa
+8. https://www.gofundme.com/vanessa-kareem-elhadidi-fire-fund
+9. https://www.gofundme.com/a-scholarship-fund-for-asianamericans
+10. https://www.gofundme.com/f/how-to-report-a-hate-crime-booklet-printing-fund
+11. https://www.gofundme.com/f/support-dragon-printing-san-francisco
+12. https://www.gofundme.com/f/justice-for-christian-hall
+
+## China MAC Former Felon Convict Activist with Heart of Gold Leads 1MM+ Peace Rally Mass Social Justice Movement
++ https://www.gofundme.com/f/help-89-year-hate-crime-victim
++ https://www.theycantburnusall.org/pages/donate
++ https://www.youtube.com/watch?v=rSQ5RdvaLpE
+
+## AEC
++ https://www.gofundme.com/zazgs-csa039s-culture-show
++ https://www.gofundme.com/f/lets-get-james-hong-a-star-on-the-walk-of-fame \#James127 
+
+Consult Christ first - Do not be so easily deceived by the mind of man's definition or interpretation of justice with fancy sounding names / labels like "restorative justice" movements "sanctuary cities" meaning displacing penitentiary facilities into public civic commercial centers and their limpwristed liberal nominalism and labelist gaslighting ilk and ignorant far right unlicensed paranationalists, instead aim for Vice President of America Kamala Harris's style of judicial execution & tough-on-crime incarceration for serious felons with disproportionately extendend sentences forever as surgery subjects, so the 80% good people in public can help them learn and educate why evil is a bad thing and help them earn less than $2 per day minimum wage assembling wheelchairs for good people suffering from disability and dignity
 
 # https://nextshark.com/asian-businesses-support-donation-looted/
 **2020 news flash update unhelpful racist responses to universal global health pandemic** https://en.wikipedia.org/wiki/Xenophobia_and_racism_related_to_the_2019%E2%80%9320_coronavirus_pandemic \#liberal \#libel \#slander 
