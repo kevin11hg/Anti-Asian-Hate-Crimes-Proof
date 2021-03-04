@@ -1,4 +1,4 @@
-# Anti-Asian-Hate-Crimes-Proof
+# Anti-Asian Racially Motivated Hate Crimes Proof
 Data of Disproportionate Crimes Against Asians Underreported, Misreported, Downplayed by Controlled Mainstream Media and their Special Interest Groups.  Sources like Nextshark are closer to small startups not yet influenced by big media as of currently.. Don't trust Fakebook and other discredible misinformation sources. Developing into future evidence & purposes of historicity / hedge against racist revisionism.
 ## http://asianam.org/
 ##  EXCLUSIVE: Waitress who defended Asian family and stopped SF tech CEO's racist rant at Carmel Valley restaurant receives almost 6 figures <$1MM in Venmo tips and GoFundMe donations
