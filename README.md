@@ -1,9 +1,9 @@
 # Anti-Asian Racially Motivated Hate Crimes Proof
-Data of Disproportionate Crimes Against Asians Underreported, Misreported, Downplayed by Controlled Mainstream Media and their Special Interest Groups.  Sources like Nextshark are closer to small startups not yet influenced by big media as of currently.. Don't trust Fakebook and other discredible misinformation sources. Developing into future evidence & purposes of historicity / hedge against incel gaslighting and ignorant racist revisionism.
+Data of Disproportionate Crimes Against Asians Underreported, Misreported, Downplayed by Controlled Mainstream Media and their Special Interest Groups.  Sources like Nextshark are closer to small startups not yet influenced by big media as of currently.. Don't trust Fakebook their shill censorship and other discredible misinformation media sources. Developing into future evidence / citations for the purposes of historicity + hedge against incel gaslighting and ignorant racist revisionism.
 ## asianam.org
 ##  EXCLUSIVE: Waitress who defended Asian family and stopped SF tech CEO's racist rant at Carmel Valley restaurant receives almost 6 figures <$1MM in Venmo tips and GoFundMe donations
 ## [Andrew Yang ](https://www.yangforny.com/) and NYPD Deputy Inspector Stewart Loo Form & Fund Asian Hate Crimes Unit https://www.youtube.com/watch?v=N-vFPsA9dlk&ab_channel=InsideEdition
-Predators and Cowards Worst Nightmare: Batman + Bruce Lee + Richard Dragon + Public Prosecutor & NYPD Deputy Inspector Stewart Loo ![](https://pbs.twimg.com/ext_tw_video_thumb/900193851918372864/pu/img/hXmLt7W_DQuBR6T6.jpg)
+Predators Pervs Scums and Cowards Worst Nightmare: Batman + Bruce Lee + Richard Dragon + Public Prosecutor & NYPD Deputy Inspector Stewart Loo ![](https://pbs.twimg.com/ext_tw_video_thumb/900193851918372864/pu/img/hXmLt7W_DQuBR6T6.jpg)
 # 2021 List of GoFundMes & Charities
 1. https://www.gofundme.com/f/bayview-victim-family-fund
 2. https://nextshark.com/asian-businesses-support-donation-looted/
@@ -12,7 +12,7 @@ Predators and Cowards Worst Nightmare: Batman + Bruce Lee + Richard Dragon + Pub
 5. https://www.theycantburnusall.org/pages/donate
 6. https://www.gofundme.com/f/jubilee-silver-rebuilding-fund
 7. https://www.gofundme.com/f/h93r4-long-beach-ten-riot-recovery-fund
-## https://nymag.com/strategist/article/where-to-donate-to-help-asian-communities-2021.html
+## 40+ Ways to Help Global Asian Community Recovery https://nymag.com/strategist/article/where-to-donate-to-help-asian-communities-2021.html
 1. https://www.gofundme.com/f/help-rebuild-k-beauty-supply-after-looting
 2. https://www.gofundme.com/f/gadget-garage-looting-relief
 3. https://www.gofundme.com/f/lets-get-james-hong-a-star-on-the-walk-of-fame
@@ -49,10 +49,14 @@ Predators and Cowards Worst Nightmare: Batman + Bruce Lee + Richard Dragon + Pub
 11. https://www.gofundme.com/f/support-dragon-printing-san-francisco
 12. https://www.gofundme.com/f/justice-for-christian-hall
 
-## China MAC Former Felon Convict Activist with Heart of Gold Leads 1MM+ Peace Rally Mass Social Justice Movement
+## China MAC Former Felon Convict Activist with Heart of Gold Leads ~1MM+ Peace Rally Mass Social Justice Movement For Eldercare Awareness
 + https://www.gofundme.com/f/help-89-year-hate-crime-victim
 + https://www.theycantburnusall.org/pages/donate
 + https://www.youtube.com/watch?v=rSQ5RdvaLpE
+
+## Yong Zhen Father Good Samaritnan + Vigilante Hero
++ https://www.gofundme.com/f/YongZheng
++ https://www.gofundme.com/f/help-family-of-good-samaritan-slain-in-brooklyn
 
 ## AEC
 + https://www.gofundme.com/zazgs-csa039s-culture-show
@@ -67,7 +71,7 @@ Consult Christ first - Do not be so easily deceived by the mind of man's definit
 # https://www.gofundme.com/f/help-89-year-hate-crime-victim
 # www.gofundme.com/f/Rebuilding-Fordham-GoldCashIncKingsJewlery?fbclid=IwAR24PV2Tk2QjcDhxX8NIyT1LGmLlDnJ4T_6TxDIwvLPaZnMuntWF4_Noscg
 
-# Remember Aaron Vu + Peter Wang + Kelvin Chew 
+# Remember Aaron Vu Less Than 10 Years Old Young Man + Peter Wang 15-Year Old Civic Hero + Kelvin Chew 
 https://asamnews.com/tag/aaron-vu/
 
 # https://nextshark.com/rialto-korean-man-attacked-bus/
