@@ -76,6 +76,7 @@ Consult Christ first - Do not be so easily deceived by the mind of man's definit
 
 # Pray Psalm 91 Song of Moses Protection in Public Spaces / Private Homes Surveiled Gated Communities
 ## https://nextshark.com/rialto-korean-man-attacked-bus/
+![](https://pbs.twimg.com/media/EvGRmmEVkAIYGem?format=jpg&name=medium)
 
 <table class="table table-bordered table-hover table-condensed">
 <thead><tr><th title="Field #1">Year</th>
