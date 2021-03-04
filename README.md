@@ -7074,6 +7074,7 @@ Consult Christ first - Do not be so easily deceived by the mind of man's definit
 # ![Asians Elders Victims of Abuse](https://www.reddit.com/r/aznidentity/comments/fb8b6y/compilation_of_attacks_on_the_elderly)
 
 
-Predators Pervs Public Menaces Scums and Cowards Your Worst Nightmare: Batman + Bruce Lee + Richard Dragon + Public Prosecutor & NYPD Deputy Inspector Stewart Loo ![https://www.youtube.com/watch?v=N-vFPsA9dlk&ab_channel=InsideEdition](https://raw.githubusercontent.com/kevin11hg/Anti-Asian-Hate-Crimes-Proof/master/Andrew%20Yang%20Stewart%20Loo%20Batman%20Richard%20Dragon.png) ![](https://pbs.twimg.com/ext_tw_video_thumb/900193851918372864/pu/img/hXmLt7W_DQuBR6T6.jpg)
-
+[https://www.youtube.com/watch?v=N-vFPsA9dlk&ab_channel=InsideEdition](https://raw.githubusercontent.com/kevin11hg/Anti-Asian-Hate-Crimes-Proof/master/Andrew%20Yang%20Stewart%20Loo%20Batman%20Richard%20Dragon.png)
+Predators Pervs Public Menaces Scums and Cowards Your Worst Nightmare: Batman + Bruce Lee + Richard Dragon + Public Prosecutors + Gaolers & NYPD Deputy Inspector Stewart Loo
 [![Foo](https://raw.githubusercontent.com/kevin11hg/Anti-Asian-Hate-Crimes-Proof/master/Andrew%20Yang%20Stewart%20Loo%20Batman%20Richard%20Dragon.png)](https://www.youtube.com/watch?v=N-vFPsA9dlk&ab_channel=InsideEdition)
+
